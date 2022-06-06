@@ -1,1 +1,0 @@
-# AyushMathpal.github.io
